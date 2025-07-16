@@ -1,0 +1,1 @@
+smothing templates description
